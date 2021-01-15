@@ -1,1 +1,1 @@
-Credits : SonalSingh18 Kdr0gon and Lineage os
+Credits : SonalSingh18 Kdrag0n and Lineage os
