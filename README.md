@@ -1,1 +1,1 @@
-# android_device_xiaomi_miatoll-common
+Credits : SonalSingh18 Kdr0gon and Lineage os
